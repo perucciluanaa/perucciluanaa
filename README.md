@@ -8,3 +8,5 @@ MEU NOME É LUANA PERUCCI
   luana_019@icloud.com
 
   @peruccilu_
+
+![](https://media1.tenor.com/m/BWQxV7PZuwMAAAAC/bubu-dudu-bubu-dudu-love.gif)
